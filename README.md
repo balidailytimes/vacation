@@ -1,1 +1,3 @@
 # vacation
+
+# Bali Daily Times
